@@ -1,5 +1,5 @@
 # Andromeda Software
 ## Founded by nil#1111
-### Check out the website @ UNDER CONSTRUCTION
+### Join the Discord @ https://discord.gg/w27Kh5WF
 
 ##### Andromeda Software / 5th May 2022
